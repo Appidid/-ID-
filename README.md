@@ -1,4 +1,4 @@
-# 苹果共享ID
+# 苹果共享ID 下载软件只需登录App Store 安全提示点「其他选项」在点「不升级」
 最新苹果id|美国区id|日本区id |韩国区id|香港区id|国区id|台湾区id|加拿大区id|新加坡区id|海外苹果id服 Apple ID ios 账号及密码大全 国外 小火箭|下载|Shadowrocket共享账号|Quantumult X|圈x
 
 免费共享苹果外区ID账号分享 中日台美港俄韩国 最新Apple ID共享ios外服账号 【定期更新】<br/>
